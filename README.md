@@ -1,0 +1,2 @@
+# premium-nickel-plate-001-nickel-plating-bath-electro
+Tired of scattered notes and inconsistent nickel plating results? The Nickel Plating Bath &amp; Electro Deposit Craft Lab brings precision and order to your electroplating experiments, so every deposit is repeatable and every bath performs at its peak.  This Notion template eliminates the guesswork from nickel plating—track bath composition, operating
